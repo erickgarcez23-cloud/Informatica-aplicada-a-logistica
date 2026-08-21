@@ -1,3 +1,3 @@
 # Informatica-aplicada-a-logistica
-## apresentacao pessoal em grupo 
+## apresentação pessoal em grupo
 https://centropaulasouza-my.sharepoint.com/personal/arthur_vertuli_aluno_cps_sp_gov_br/Documents/Presentation.pptx
