@@ -1,3 +1,4 @@
+<img width="1302" height="660" alt="image" src="https://github.com/user-attachments/assets/7ac1c10f-73e2-4dce-bef5-ba950d51cc88" />
 # Informatica-aplicada-a-logistica
 ## apresentação pessoal em grupo
 https://centropaulasouza-my.sharepoint.com/personal/arthur_vertuli_aluno_cps_sp_gov_br/Documents/Presentation.pptx
